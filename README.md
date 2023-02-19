@@ -1,4 +1,4 @@
-【更新】某宝买的几千个个单机游戏（支持迅雷、百度云）
+某宝买的几千个个单机游戏,需要的可以在表格中找（支持迅雷、百度云）
 
 使命召唤1到14下载链接：https://pan.baidu.com/s/1CZLX9Ogfugm8e4Z2-sgDiw 提取码：t6l2
 使命召唤附件赠品链接：https://pan.baidu.com/s/1fHw4vG4AI2i8luN8o7MhjA 提取码：t0d3
